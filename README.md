@@ -1,1 +1,1 @@
-# uuh_sigma_repo
+# kurwa jakie gupie
